@@ -1,0 +1,4 @@
+These are the three elements of a WMD: Opacity, Scale, and Damage. What is a model? The purpose of the model is to run different scenarios at each junction to find the optimal combination.
+But the use of big data and algorithms in fields as diverse as insurance, education and policing hurts the poor and thus exacerbates racism and inequality.
+As the last paragraph says："Innocent people surrounded by criminals get treated badly, and criminals surrounded by a law-abiding public get a pass."
+It is just like when a murderer kills a person, the police do not show up in time to help the victim, but when the victim's relatives look for revenge, the police show up in time to arrest the victim's relatives and protect the murderer, because the victim's relatives did not take appropriate legal measures. (Of course, the killer got his comeuppance in the end.)
