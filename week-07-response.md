@@ -1,0 +1,5 @@
+Mona Chalabi has found three ways to deal with poor statistics: "Can you see the uncertainty of information? How do you gather information? See if you see everything you need to know on the chart?" In Cathy O 'Neil's reading, I've seen the pernicious impact of spending money to place products on the Internet and on different consumer groups, particularly with the emergence of predatory advertising. In Chris Gayomali's reading material, I saw how different fonts give readers different feelings and final impressions, and why.
+
+I think if without these methods (targeted advertising, using a specific design shape and content of interaction), the Internet will become more useful and equality, because it does not keep sending only interested in things in order to benefit, it will be a lot of all kinds of information, let people know more knowledge and information, and can also exercise the recognition ability of information to the people.
+
+I think if your information is lost in a lot of online content, it's useful to boot the user, because it automatically recommends relevant content based on the user's interests so it's easy to find.
