@@ -1,6 +1,2 @@
 For this project, I hope I can shoot interesting videos around me as my material, and at the same time I will learn how to use the most effective method to make virtual background.
 
---
-Jared's reply:
-It's great that you will take your own video. I think that's nice practice to shoot video with intention for building a scene, but you are also welcome to find video, images, or animated gifs and use those as well to build your scene or "collage" items together. There isn't much of an explanation here, but it sounds like you're interested in your local town or neighborhood, which I think could be interesting to provide context for where you are "in space" right now. Since we are all online, and some of us (yourself included) are in other countries, it can be hard to connect with one another in the same way we would physically. Maybe there is something here in using footage from the environment around you to attempt to give us some of that "physical context" of where you are from a distance? As you keep working on your idea, let me know if you have questions! We have a work day on Tuesday for this project. 
-
