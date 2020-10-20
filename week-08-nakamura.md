@@ -1,0 +1,3 @@
+I believe Nakamura's citation of Lev Manovich, take TikTok, which I watch a lot. I think this is a very interesting communication platform, because it can post any legitimate short video on it, and can be left a message, bookmark, forward, chat, live broadcast and other functions.
+
+The main thing is that any identity, any race, any age group can use it, so we can see lots and lots of different short videos. So we can learn about the cultures and thoughts of people in other countries and at other ages. This has played a great role in promoting exchanges among people of all countriesIt's a point of pride for designers or developers to build software that people around the world can use and communicate with.
