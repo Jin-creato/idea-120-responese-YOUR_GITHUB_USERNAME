@@ -11,3 +11,4 @@ At the end, you could even have the user input/type in what they believe the wor
 If you wanted to create something where the user inputs their answer and then checks it, you could use a solution like the one found here: http://twinery.org/questions/26657/user-input-and-other-things - the second post where they are doing "error checking" on the name being used. Be sure to watch the Tutorials I assigned, specifically the one on Variables in twine (https://www.youtube.com/watch?v=l3zGvR4S27c) for more information on using variables (stored data that changes based on the state of the story or input from the user).
 
 Excited to see it!
+
