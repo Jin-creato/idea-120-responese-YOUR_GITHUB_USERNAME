@@ -1,0 +1,1 @@
+I want to create a page similar to the website introduction, this page has my project 1,2 and 4 brief introduction and pictures, if possible, click on them to have more detailed content, so that it is clear and convenient. As my project 4 is still completely finished, I am not completely sure about the page arrangement, but I will try my best to do my best.
