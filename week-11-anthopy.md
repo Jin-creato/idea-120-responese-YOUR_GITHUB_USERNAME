@@ -1,0 +1,5 @@
+What is it good for？At the beginning of the article, I saw an impressive sentence: A game is an experience created by rules.
+
+"A game is an experience, and that experience has a certain character. Maybe a game is a story, or maybe it’s the experience of control giving way to panic giving way to relief. Maybe it’s about taking something and making it grow bigger and bigger and bigger, or maybe it’s about two rivals, equally matched, each trying to out-guess the other’s plans. The experience that we identify as a game has character, and we can talk about what that experience is."
+
+The last paragraph reminds me of something beyond the game, which is the game plug-in. This is something that affects the balance of the game and the rules of the game. Not only does it deprive the player of the normal game experience, but it deprives the creator of the benefits from the game. So the emergence and development of a good game, not only good game creation, but also better protection and monitoring of the game environment.
